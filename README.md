@@ -17,6 +17,7 @@
 | 2 | 1 800 € | 0 € |  
 |  |**Cumul licence**|   **Total réglé**  |  
 |   | 3 600 € | 0 € |  
+
 ---
 
 ### Décomptes jours / homme  
